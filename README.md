@@ -1,0 +1,1 @@
+ini adalah yang akan disimpan
